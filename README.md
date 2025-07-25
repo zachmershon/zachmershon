@@ -12,7 +12,7 @@
  　 　 　 　  　 　  　 　 　 　　 　　 　 　 　 　  　　　 　  　 　　 　 　　  dragon / zach　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　　i LOVE RecallAHollowHeart + main interest　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　please INT if you like rcahh :D　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　but i block freely btw!! ^_^
 </p>
 
-　　　　　　　　　　　　　　　　　　　　　 [twitter](https://x.com/ihflulz)　　𓏵　　[atabook](https://dragondudes3.atabook.org/)　　𓏵　　[strawpage](https://zachmershon.straw.page/)
+　　　　　　　　　　　　　　　　　　　　 [twitter](https://x.com/ihflulz)　　𓏵　　[atabook](https://dragondudes3.atabook.org/)　　𓏵　　[strawpage](https://zachmershon.straw.page/)
 <p align="center">
 cuddle / hide is encouraged!! i find comf in it :3c　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　mostly whispr me 2 int but iwecaution/care thank uu!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　i really love dragon. i might b a bit of a narc&will get uncomf when saying u like him more than i do
 </p>
