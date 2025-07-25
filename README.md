@@ -17,7 +17,7 @@
 cuddle / hide is encouraged!! i find comf in it :3c　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　mostly whispr me 2 int but iwecaution/care thank uu!　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　i really love dragon. i might b a bit of a narc&will get uncomf when saying u like him more than i do
 </p>
 
-　　　　　　　　　　　　　　　　　　　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cghiaeohuoxydm5numjzofp7se&cover_image=true&theme=novatorem&show_offline=true&background_color=148a16&interchange=false&bar_color=7f850b&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31cghiaeohuoxydm5numjzofp7se&redirect=true)
+　　　　　　　　　　　　　　　　　　　 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cghiaeohuoxydm5numjzofp7se&cover_image=true&theme=novatorem&show_offline=true&background_color=148a16&interchange=false&bar_color=7f850b&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31cghiaeohuoxydm5numjzofp7se&redirect=true)
 <p align="center">
 i don't bite pls, ic: @circusofdeceit on twt　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　sign my atabook/strawpage >:P
 <p align="center">
