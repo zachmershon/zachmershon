@@ -4,7 +4,7 @@
 
 <p align="center">
 
- 　 　 　 　 　 　 　  　　　 　 　 　 　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sixtyfour&size=15&pause=1000&color=7C860A&background=A38E935A&center=true&vCenter=true&width=435&lines=cut+it+with+the+cold+garbage%2C;you're+NOT+ace.;just+tell+me+the+truth.)](https://git.io/typing-svg)
+ 　 　 　 　 　 　 　  　　　 　  　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Sixtyfour&size=15&pause=1000&color=7C860A&background=A38E935A&center=true&vCenter=true&width=435&lines=cut+it+with+the+cold+garbage%2C;you're+NOT+ace.;just+tell+me+the+truth.)](https://git.io/typing-svg)
 </p>
 <p align="center">
 　<img src="https://files.catbox.moe/c3vaxl.gif">
